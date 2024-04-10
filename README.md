@@ -8,6 +8,4 @@
 - 🤔 looking for help with finding a fantastic job opportunity 
 - 📫 You can reach me on the following link on LinkedIn www.linkedin.com/in/eronjohnson
 
-
-- 
   
